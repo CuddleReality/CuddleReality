@@ -1,5 +1,5 @@
 # Cuddle Reality
-
+![thumb-1920-88577](https://user-images.githubusercontent.com/91263623/134509701-37c58412-af75-492d-a3db-2b81669da461.jpg)
 
 
 ## About Us
